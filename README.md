@@ -1,0 +1,3 @@
+hello, I sell my script for scam I have all types of scam that it is in relation to the crypto or nft and much more.....
+if you want to know more contact me on telegram
+https://t.me/CresusETH
